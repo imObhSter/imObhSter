@@ -15,5 +15,3 @@ On the Front-End side, I have knowledge of programming languages ​​like HTML
 
 💌 Hire Me :
 I am a freelancer, if you want a project or want to collaborate with me, do not hesitate to contact me 
-
-🔽 Below :
